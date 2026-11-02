@@ -9,9 +9,7 @@ Enjoy reading the read.me
 
 
 
-<img width="635" height="541" alt="Screen recording 2026-11-02 4 24 04 PM" src="https://github.com/user-attachments/assets/2efdab8c-a998-4b11-b79d-0bb223f45a84" />
-
-
+<img width="209" height="142" alt="Screen recording 2026-10-25 2 01 23 AM" src="https://github.com/user-attachments/assets/e5aaeaf6-8b24-454f-a3cc-542e5add82be" />
 
 ### **PONY TOWN**
 
