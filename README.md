@@ -4,7 +4,8 @@
 # ABOUT ME
 ⋆. .✦ ݁˖
 I am a stupid black/norwegian guy , Time zone  : UTC  , Chromebook (main) / phone user. During school hours I will be online in whatever time a teacher allows me to use my chromebook. I will be online at 2:20- 5:15 ( at 5:15 I am going home so give me a few mins to come back online if I feel like it..)
-I AM LOOKING TO ADOPT SOME ONLINE KIDS (I'm a good father I swear🥹, free c+hs. 1800 pain fan , Enjoy reading the read.me
+I AM LOOKING TO ADOPT SOME ONLINE KIDS (I'm a good father I swear🥹, free c+hs. 1800 pain fan
+Enjoy reading the read.me
 <img width="547" height="349" alt="2026_11_01_0v9_Kleki" src="https://github.com/user-attachments/assets/6b95c9d2-758e-4ea8-9b94-5033b162300d" />
 ### **PONY TOWN**
 
