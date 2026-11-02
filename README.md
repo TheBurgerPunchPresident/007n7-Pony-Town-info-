@@ -3,14 +3,13 @@
 
 # ABOUT ME
 ⋆. .✦ ݁˖
-I am a stupid black/norwegian guy November<img width="635" height="541" alt="Screen recording 2026-11-02 4 24 04 PM" src="https://github.com/user-attachments/assets/2efdab8c-a998-4b11-b79d-0bb223f45a84" />
- 30th  , Time zone  : UTC  , Chromebook (main) / phone user. During school hours I will be online in whatever time a teacher allows me to use my chromebook. I will be online at 2:20- 5:15 ( at 5:15 I am going home so give me a few mins to come back online if I feel like it..)
+I am a stupid black/norwegian guy November 30th  , Time zone  : UTC  , Chromebook (main) / phone user. During school hours I will be online in whatever time a teacher allows me to use my chromebook. I will be online at 2:20- 5:15 ( at 5:15 I am going home so give me a few mins to come back online if I feel like it..)
 I AM LOOKING TO ADOPT SOME ONLINE KIDS (I'm a good father I swear🥹, free c+hs. 1800 pain fan + Joker semi kin
 Enjoy reading the read.me
 
 
 
-<img width="635" height="541" alt="Screenshot 2026-11-02 4 27 19 PM" src="https://github.com/user-attachments/assets/1c8da8d2-0c50-4b54-8dd1-0f3f5d5b290b" />
+<img width="635" height="541" alt="Screen recording 2026-11-02 4 24 04 PM" src="https://github.com/user-attachments/assets/2efdab8c-a998-4b11-b79d-0bb223f45a84" />
 
 
 
