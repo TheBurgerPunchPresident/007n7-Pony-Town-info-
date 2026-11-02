@@ -3,8 +3,8 @@
 
 # ABOUT ME
 ⋆. .✦ ݁˖
-I am a stupid black/norwegian guy , Time zone  : UTC  
-I AM LOOKING TO ADOPT SOME KIDS , free c+hs. 1800 pain fan , Enjoy reading the read.me
+I am a stupid black/norwegian guy , Time zone  : UTC  , Chromebook (main) / phone user. During school hours I will be online in whatever time a teacher allows me to use my chromebook. I will be online at 2:20- 5:15 ( at 5:15 I am going home so give me a few mins to come back online if I feel like it..)
+I AM LOOKING TO ADOPT SOME ONLINE KIDS (I'm a good father I swear🥹, free c+hs. 1800 pain fan , Enjoy reading the read.me
 <img width="547" height="349" alt="2026_11_01_0v9_Kleki" src="https://github.com/user-attachments/assets/6b95c9d2-758e-4ea8-9b94-5033b162300d" />
 ### **PONY TOWN**
 
@@ -109,9 +109,9 @@ Over 34 , Lowkey this wont happen because what 34 year old is playing pony town 
 
 If you come out of no where i will be rude to you. Try being nice. I will maybe be rude at first but will warm up.
 
-I AM FREAKY AS FUCKKKK , if i am close to you heavily i will start to act like that more towards you like sexual jokes. If not for you , tell me that. I DO
+I AM FREAKY AS FUCKKKK , if i am close to you heavily i will start to act like that more towards you like sexual jokes. If not for you , tell me that.
 
-Have a praise kink so please if you dont like that , dont call me a good boy or say good job I will act horny twin
+I DO Have a praise kink so please if you don't like that , don't call me a good boy or say good job I will act horny gang. ( I have an issue if you can't tell already ) 
 
 I am hard with emotions , I won't communicate well. If I am mad I will let it be known. I’d like it if you knew that!
 
@@ -131,13 +131,10 @@ Shed x Builderman , elliot x 007n7 (depends ) and 1x x John doe.
 
 <br>
 
-For one hating the ship is ok but i have been doxxed and my grandma had to move because of it , its like that plot of hotel transylvania 3 , the dudes
-
-Wife is dead and he moves on with the Erica girl. That is fine , it's similar to 1337’s case. He is in forsaken preventing him from seeing his family . yeah
-
-Misses them and he wont cannonly go with someone else but it's my ship and there's nothing wrong with it. And they are too dads and 1337 is one of the
-
-Few of the robloxians who dont hate 7n7 so it's fine to ship it.
+For one hating the ship is ok but i have been doxxed and my grandma had to move because of it , its like that plot of hotel transylvania 3 ,
+The dudes Wife is dead and he moves on with the Erica girl. That is fine , it's similar to 1337’s case. He is in forsaken preventing him from seeing his family . yeah he
+misses them and he wont cannonly go with someone else but it's my ship and there's nothing wrong with it. And they are too dads and 1337 is one of the
+few of the robloxians who dont hate 7n7 so it's fine to ship it.
 
 </details>
 
@@ -147,6 +144,6 @@ Few of the robloxians who dont hate 7n7 so it's fine to ship it.
 
 ✦ ─────── ⋆⋅☆⋅⋆ ─────── ✦
 
-**007n7**
+**Zephyrus** **Out**
 
 </div>
