@@ -3,13 +3,15 @@
 
 # ABOUT ME
 ⋆. .✦ ݁˖
-I am a stupid black/norwegian guy , Time zone  : UTC  , Chromebook (main) / phone user. During school hours I will be online in whatever time a teacher allows me to use my chromebook. I will be online at 2:20- 5:15 ( at 5:15 I am going home so give me a few mins to come back online if I feel like it..)
-I AM LOOKING TO ADOPT SOME ONLINE KIDS (I'm a good father I swear🥹, free c+hs. 1800 pain fan
+I am a stupid black/norwegian guy November<img width="635" height="541" alt="Screen recording 2026-11-02 4 24 04 PM" src="https://github.com/user-attachments/assets/2efdab8c-a998-4b11-b79d-0bb223f45a84" />
+ 30th  , Time zone  : UTC  , Chromebook (main) / phone user. During school hours I will be online in whatever time a teacher allows me to use my chromebook. I will be online at 2:20- 5:15 ( at 5:15 I am going home so give me a few mins to come back online if I feel like it..)
+I AM LOOKING TO ADOPT SOME ONLINE KIDS (I'm a good father I swear🥹, free c+hs. 1800 pain fan + Joker semi kin
 Enjoy reading the read.me
 
 
 
-<img width="547" height="349" alt="2026_11_01_0v9_Kleki" src="https://github.com/user-attachments/assets/6b95c9d2-758e-4ea8-9b94-5033b162300d" />
+<img width="635" height="541" alt="Screenshot 2026-11-02 4 27 19 PM" src="https://github.com/user-attachments/assets/1c8da8d2-0c50-4b54-8dd1-0f3f5d5b290b" />
+
 
 
 ### **PONY TOWN**
@@ -100,9 +102,20 @@ If you're racist , Stay away from me..
 
 If you joke about deaths that aren't fictional or your personal family members (i will feel a little uncomfy by that though…)
 
-If you talk about the same topic 1,000 times , ( I am fine with you yapping about your interest but going on for days will annoy me. )
+If you talk about the same topic 1,000 times , ( I am fine with you yapping about your interest but going on for days will annoy me. UNLESS we are both in the fandom/interest and your just updating me! )
 
 Over 34 , Lowkey this wont happen because what 34 year old is playing pony town like be for real.
+
+If you can't talk to me if you're angry or annoyed and if you crash out on me , I wont know what's wrong and if to leave you alone and give you a few if you don't speak up and tell me 
+
+If you sexualize minors , I don't need to explain this it's just gross 
+
+If you yumeship with a character and blober about it , I think yumeships are weird but I wont yell at your for it. You may tell me your yumeship but after I don't wanna hear a single shit about it anymore. Sorry just how I am..
+
+Please don't do stuff like flirt with me , I will get heavily attracted this way and I DO have trust issues most of the time from past events. If I ( IN a friend way , I don't like online dating but if you say smth like " OH we are married " that will get me more attached ) get attached to you I will get upset if we get into a argument and we don't talk I will probably hate you for the rest of my life and this will make my trust issues worst.
+
+If you don't understand my point of view in something. I will understand yours but you GOTTA understand mine as well.
+
 
 </details>
 
@@ -126,7 +139,13 @@ I cuss a lot , no more then that. I will make jokes about me being black and nor
 I have minor trust issues , if you do stuff like flirt and dirty talk I WILL maybe platonicly fall for you like a dog , don't do this then push me away It will only grow my trust issues and not want me to speak to you. so don't be all lovely dovey if you don't like it back from someone else.
 
 I ship Noli x noob , Noli x 7n , 7n7 x dued1 (Not frsk) , 7n7 x guest 1337 ( DONT HARRASS FOR THAT I WILL TALK ABOUT THAT IN A BIT ) 7n7 x 1x
-Shed x Builderman , elliot x 007n7 (depends ) and 1x x John doe.
+Shed x Builderman , elliot x 007n7 (depends ) and 1x x John doe. Jane x Brighteyes ( Kinda rare ship , I will also ad onto this because I wanna explore more ships yk ) 
+
+I got a big ass ego , don't show it much but I do. I probably wont admit I am wrong in a argument ( TRYING TO CHANGE THAT. work with me in my struggles please...) 
+
+I am not that energetic , semi. 
+
+I have a very dark humor , wanna hear a joke? Why do black people only have nightmares , the last one to have a dream got shot. 
 
 </details>
 
@@ -151,5 +170,7 @@ few of the robloxians who dont hate 7n7 so it's fine to ship it.
 ✦ ─────── ⋆⋅☆⋅⋆ ─────── ✦
 
 **Zephyrus** **Out**
+
+<img width="947" height="517" alt="Screenshot 2026-11-01 2 45 29 PM" src="https://github.com/user-attachments/assets/00479777-b5a9-44f9-bf61-0ec8d4e47595" />
 
 </div>
